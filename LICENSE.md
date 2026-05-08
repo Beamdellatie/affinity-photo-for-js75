@@ -1,4 +1,4 @@
-
+Get the ultimate Affinity Photo for macOS filter with best Filter for Affinity Photo for macOS - typography tools and masking tools. Featuring typography tools and masking tools,
 
 
 
